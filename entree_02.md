@@ -19,7 +19,7 @@ Cette vidéo est un tutoriel sur comment faire un donut dans Blender. C'est une 
 
 ### [Corridor Digital](https://www.corridordigital.com/)
 ### [Corridor Crew](https://www.youtube.com/@CorridorCrew)
-Site et chaîne respectivement du groupe Corridor Crew qui est
+Site et chaîne respectivement du groupe Corridor Crew qui est un groupe de personnes qui font de multiples projets multimédias, comme le montage, créations 3d, effets spéciaux, et ont même souvent des vidéos réactions avec des créateurs extrêmement connus qui ont travailler sur des gros films/projets dont ils expliquent des techniques et leur points de vues sur pleins de sujets. Très intéressant pour en apprendre plus et aussi s'amuser avec le multimedia 🔥
 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
