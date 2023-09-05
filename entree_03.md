@@ -14,11 +14,8 @@ Ce que je préfère le plus pour l'instant dans le domaine est le montage vidéo
 - YouTuber ou faire partie d'un groupe avec le même intérêt pour le multimedia/jeux vidéos comme passe temps, qui peut maintenant compter comme emplois avec un minimum de popularité.
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
-
 Une entreprise que je m'identifie beaucoup ces temps-ci est Larian Studios, une entreprise de jeux vidéos qui à des bureaux au Québec, celle-ci est devenue très connus récemment avec la sortie d'un très gros jeu nommé *Baldurs Gate 3*, un jeu qui se passe dans l'univers de DnD (Donjons et Dragons). Cette entreprise est connu pour bien écouter et répondre aux critiques/consommateurs et sont donc très bien perçu. Je m'identifie donc beaucoup à cette entreprise, car je suis une personne qui adore écouter les critiques pour m'améliorer et parfaire mes aptitudes et aussi, car j'adore leurs jeux.
 L'artiste, ou plutôt un groupe d'artistes que je m'identifie beaucoup et cela depuis des années maintenant est le groupe Corridor Crew. Une chaîne YouTube dédié a la découverte et la création de tout ce qui touche au multimedia. Ils touchent a tout et n'ont pas peur de parler et d'utiliser les nouvelles technologies pour les aider dans leurs projets. Une chose qui me touche aussi beaucoup, car j'aime faire apprendre de nouvelles choses a mes amis, et dans le futur au monde entier, de sujets qui me passiones.
-
 
 ### Dans 5 ans
 Où vous voyez-vous dans 5 ans? 
