@@ -14,11 +14,12 @@ Le podcast Dungeons and Daddies est une des oeuvres qui m'a fait entrer dans l'u
 ### [Spotify](https://open.spotify.com/intl-fr)
 L'application Spotify est un "must" pour quand j'ai besoin de me concentrer et me donner des idées pour la création de projets comme photoshop. Sans la musique, rester 8h devant un écran serait impossible. Si on parle de musiques en particuliers, je dirais peut importe la musique, mais surtout du rock/metal/pop des années 1980-2000 🎶
 
-### Lien 3 
+### [Tutoriel Donut Blender](https://www.youtube.com/watch?v=nIoXOplUvAw)
+Cette vidéo est un tutoriel sur comment faire un donut dans Blender. C'est une vidéo extrèmement connus pour les débutants comme moi sur ce logiciel plutôt compliqué. Celle-ci m'a introduit et m'a aussi montré comment la création d'objets et de décors 3d pouvais être amusante et m'a poussé à continuer à m'entraîner sur mes projets 💪
 
-
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
+### [Corridor Digital](https://www.corridordigital.com/)
+### [Corridor Crew](https://www.youtube.com/@CorridorCrew)
+Site et chaîne respectivement du groupe Corridor Crew qui est
 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien. 
