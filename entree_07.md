@@ -4,8 +4,8 @@
 L’objectif de cet exercice est de développer une opinion sur la conférence que nous avons eu en classe. 
 
 ### Description (Entre 4 et 6 lignes)
-j'ai bien aimeé, quoi que un peu trop rapide et vague sur certain point, qui a rendu la conférence un peu difficile a compendre. La conférence m'a pas apprise énormément de nouvelles choses, donc
-oui je l'ai apprécié, mais j'aurais pus faire sans. Elle xpliquait bien, mais je crois que la conférence était trop courte pour la rendre meilleure
+j'ai bien aimé, quoi que un peu trop rapide et vague sur certains points, qui a rendu la conférence un peu difficile a compendre. La conférence m'a pas apprise énormément de nouvelles choses, donc
+oui je l'ai apprécié, mais j'aurais pus faire sans. Elle expliquait bien, mais je crois que la conférence était trop courte pour la rendre meilleure
 
 
 ### Clarté de la conférence (Entre 1 et 2 lignes)
