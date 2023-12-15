@@ -3,14 +3,17 @@
 Durée: 8 à 10 minutes
 
 ### Résumer votre projet en une phrase
-Résumer le projet en une phrase concise.   
+The Arsenal, un action roguelike  2D avec le style pixel art, basé dans un monde apocalyptique  
 
 ### Moodboard
-Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moodboard, de maquettes ou de croquis. 
+(déjà fait dans le trello)
+https://trello.com/b/tjVbCsUx/projet-domaine-multimedia-the-arsenal
 
 ### Technologies
-Décrivez quelles seront les technologies utilisées dans votre projet. 
+(déjà fait dans le trello)
+https://trello.com/b/tjVbCsUx/projet-domaine-multimedia-the-arsenal
 
 ### Tâches
-Quelles sont les tâches nécessaires à la réalisation de votre projet? 
+(déjà fait dans le trello)
+https://trello.com/b/tjVbCsUx/projet-domaine-multimedia-the-arsenal
 
